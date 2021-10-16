@@ -5,3 +5,5 @@
 
 
 ***Haciendo click en el archivo "2019.cmd" como administrador , automaticamente empieza la activacion!!!***
+
+# ***Si deseas apoyarme monetariamente , te devo mi cvu  0000007900204710884482***
